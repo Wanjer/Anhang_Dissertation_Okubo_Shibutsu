@@ -1,5 +1,7 @@
 Anhang zur Dissertation "Authentizität und klassisch-chinesische Dichtung im Japan der frühen Neuzeit - Das Werk des Dichters Ōkubo Shibutsu"
+
 Digital Appendix to the Dissertation 'Authenticity and Classical-Chinese Poetry in Early Modern Japan - The Œuvre of the Poet Ōkubo Shibutsu'(2025)
+
 https://archiv.ub.uni-heidelberg.de/volltextserver/37534/
 
 1. Gesamtverzeichnis der Gedichte
